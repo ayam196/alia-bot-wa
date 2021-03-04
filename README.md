@@ -1,4 +1,4 @@
-### I'm FXC7BOT Gift Me Stars 🌟 <br><img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="20px">
+### I'm Alia Gift Me Stars 🌟 <br><img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="20px">
 <p align="center">
 <a href="https://github.com/Fxc7"><img src="https://raw.githubusercontent.com/Fxc7/termux-bot-wa/main/src/glitchtext.png"></a>
 </p>
@@ -25,8 +25,8 @@
 ## I am Hungry Your Donate
 <hr color="black">
 
-* [Saweria](https://saweria.co/FarhanXCo)
-* [Trakteer](https://trakteer.id/FarhanXCo)
+* [Saweria](https://saweria.co/DinoBot)
+* [Dana](085892910131)
 
 
 ## Tools
@@ -250,6 +250,6 @@ Follow The Steps Below!
 
 ## Group
 
-* <a href="https://chat.whatsapp.com/GHC5djoQJrcGBJFwYQuQoB"><img alt="WhatsApp" src="https://img.shields.io/badge/WhatsApp%20Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white"/></a>
+* <a href="https://chat.whatsapp.com/CNwtFTWyTaVG3vRtjuyRJ0https://chat.whatsapp.com/CNwtFTWyTaVG3vRtjuyRJ0"><img alt="WhatsApp" src="https://img.shields.io/badge/WhatsApp%20Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white"/></a>
 
 ---
